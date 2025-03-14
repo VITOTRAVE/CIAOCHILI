@@ -22,3 +22,12 @@ Accedi alla guida Ben-Essere e inizia ad acquisire in 3 Passi Forma Fisica, Forz
 Nella guida Ben-Essere troverai un percorso dettagliato Senza dover seguire diete estenuanti, senza dover eseguire allenamenti faticosi e soprattutto potrai avere un percorso preciso ed orientato, assistito dal tuo Mentor personale.
 
 # LINK: https://doctor-v.it/#elementor-action%3Aaction%3Dpopup%3Aopen%26settings%3DeyJpZCI6MzksInRvZ2dsZSI6ZmFsc2V9
+
+--------------------------------------------------------------------------------------------------------------------------
+ABOUT: https://doctor-v.it/about/
+BLOG: https://doctor-v.it/blog/
+SERVIZI: https://doctor-v.it/servizi/
+CIAOCHILI: https://doctor-v.it/ciaochili/
+FONDAZIONE CIAOCHILI: https://doctor-v.it/f-o-n-d-a-z-i-o-n-e-ciaochili/
+
+# ©doctor-v.it
