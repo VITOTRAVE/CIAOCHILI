@@ -7,7 +7,7 @@ Conosciuto come  Doctor V  posso aiutarti attraverso Combinazioni Nutrizionali P
 
 Come prima cosa ti consiglio di guardare la mia video case study. Puoi accedere gratis dal pulsante qui sotto.
 
-# LINK: 
+# LINK: https://www.youtube.com/watch?v=n75tQdjsnVo
 
 # CIAOCHILI la Regola delle 3M = Mente+Metabolismo+Motoria
 
