@@ -1,4 +1,4 @@
-# DCIAOCHILI: Il Metodo per raggiungere Salute,Forma Fisica Perfetta,Successo Sociale e Armonia di Coppia.
+# CIAOCHILI: Il Metodo per raggiungere Salute,Forma Fisica Perfetta,Successo Sociale e Armonia di Coppia.
 
 Ti aiuto a raggiungere salute e forma ideale, trasformando mente e corpo in potenza. Con CiaoChili, ho guidato migliaia di persone verso benessere, virilità e armonia di coppia
 Biochimico specializzato in Nutrizione,  Chinesiologo e Terapista della Rieducazione Funzionale.
